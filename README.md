@@ -1,3 +1,2 @@
 ### Hi 🤔
 #
-# Follow The Trend
